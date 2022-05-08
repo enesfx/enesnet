@@ -1,0 +1,4 @@
+- 👋 Merhaba, ben @enesnet
+- 👀 11. Sınıf öğrenciysiyim
+- 🌱 Yazılım ile uğraşıyorum.
+- 📫 Bana ulaşmak için instagramdan yazabilirsiniz. @enesxrd
